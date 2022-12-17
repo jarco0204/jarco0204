@@ -1,5 +1,7 @@
 ### Johan Alexander Arcos Mendez 🦾💯
 
+### Bio and Dream: 🦏 -> 🦄
+https://inverte-ai.notion.site/Johan-Arcos-Mendez-abf7d88a17b94da48e38dc892791e002
 <!--
 **jarco0204/jarco0204** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
